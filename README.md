@@ -8,7 +8,7 @@
 NOTE: FOR CITRA USERS THAT THE CHEAT MENU IS COMPATIBLE
 
 
-🅾🆅🅴🆁🆅🅸🅴🆆
+👇🅾🆅🅴🆁🆅🅸🅴🆆👇
 
 𝕀ℂ𝔼 𝕊𝕋𝔸𝕋𝕀𝕆ℕ ℤ
 ![2024-01-21_22-56-57 195_bot-imageonline co-merged](https://github.com/EPHIXIA-KRONOS-OFFICIAL/PLUGIN-3DS-3GX/assets/132012254/9b6b26fe-a690-4d61-8dd3-4f167eb5d52f)
