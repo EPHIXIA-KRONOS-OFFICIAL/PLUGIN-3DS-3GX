@@ -10,11 +10,11 @@ NOTE: FOR CITRA USERS THAT THE CHEAT MENU IS COMPATIBLE
 
 👇🅾🆅🅴🆁🆅🅸🅴🆆👇
 
+𝔻𝔼𝕄𝔼ℕ𝕋𝕀𝕌𝕄 ℝ𝔼𝕄𝔸𝕊𝕋𝔼ℝ𝔼𝔻
+![PREVIEW DEMENTIUM](https://github.com/EPHIXIA-KRONOS-OFFICIAL/PLUGIN-3DS-3GX/assets/132012254/bcd74c55-c58b-4ab2-aec3-b98d6453ba9f)
+
 𝕀ℂ𝔼 𝕊𝕋𝔸𝕋𝕀𝕆ℕ ℤ
 ![2024-01-21_22-56-57 195_bot-imageonline co-merged](https://github.com/EPHIXIA-KRONOS-OFFICIAL/PLUGIN-3DS-3GX/assets/132012254/9b6b26fe-a690-4d61-8dd3-4f167eb5d52f)
 
 ℤ𝔼𝕃𝔻𝔸 𝔸 𝕃𝕀ℕ𝕂 𝔹𝔼𝕋𝕎𝔼𝔼ℕ 𝕎𝕆ℝ𝕃𝔻
 ![OVERVIEW](https://github.com/EPHIXIA-KRONOS-OFFICIAL/PLUGIN-3DS-3GX/assets/132012254/65ec99bb-307d-47e9-a495-40a20674521d)
-
-𝔻𝔼𝕄𝔼ℕ𝕋𝕀𝕌𝕄 ℝ𝔼𝕄𝔸𝕊𝕋𝔼ℝ𝔼𝔻
-![PREVIEW DEMENTIUM](https://github.com/EPHIXIA-KRONOS-OFFICIAL/PLUGIN-3DS-3GX/assets/132012254/bcd74c55-c58b-4ab2-aec3-b98d6453ba9f)
